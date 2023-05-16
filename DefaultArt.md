@@ -1,1 +1,1 @@
-top charts#trending now
+top charts#new releases
