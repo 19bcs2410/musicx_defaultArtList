@@ -1,1 +1,1 @@
-top charts#new releases
+top charts#pick your mood
